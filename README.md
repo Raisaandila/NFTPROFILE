@@ -1,4 +1,4 @@
-# My NFT Profile
+# My NFT Profiles
 
 - 0xraisa (1).jpg
 - 0xraisa (2).jpg
